@@ -21,6 +21,9 @@ All my artworks can also be found in my twitter profile.
 ![Rocketier](https://user-images.githubusercontent.com/113009114/189338872-2b39e955-427f-4d19-ab19-884baec87d43.jpg)
 ![sourcream](https://user-images.githubusercontent.com/113009114/189338873-0f136840-e5b5-4b15-8b7c-689c0cbe0d7e.jpg)
 ![vanderman xrp 2](https://user-images.githubusercontent.com/113009114/189338878-9624d797-1496-4ff3-b359-d1ba868a7e98.jpg)
+![HEZEE](https://user-images.githubusercontent.com/113009114/189463124-5aa4ce7c-8a81-4379-866d-4f563f3ec68f.jpg)
+![billi gorilla jake](https://user-images.githubusercontent.com/113009114/189463133-3f33adfe-0dbc-45a4-ae96-81b03193ac52.jpg)
+![Rocketier](https://user-images.githubusercontent.com/113009114/189463129-252d0c0c-d7aa-4cba-8520-5eb210ce3088.jpg)
 
 Project
 
